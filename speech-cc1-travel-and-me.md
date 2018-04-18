@@ -20,7 +20,7 @@ At that day, I went there, there’s couple of other guys, friends of friends. W
 
 Then we went playing water motorcycle. Two people at max for one machine. One driver, one passenger. The operation is very simple. It’s just like driving a motorcycle on the land, except you don’t have a brake. So how do you stop? Actually the friction on water is very high. Without fuel, your speed turns down very fast and in seconds, you are just floating on waves.
 
-One hour drive is super exciting and fun, full of shout and cry. After that, we headed to the beach. Walking by the streets, we saw this amazing dragon statue, just like the one in Game of Thrones. Also there are shops selling all kinds of interesting snacks. I tried one Korean food that mixes meat into the milk tea. Its taste was not impressive, but I still admire the cook’s imagination and courage to make up such a cuisine.
+One hour drive is super exciting and fun, full of shout and cry. After that, we headed to the beach. Walking by the streets, we saw this amazing dragon statue, just like the one in Game of Thrones. Also there are shops selling all kinds of interesting snacks. I tried one Korean food that mixes meat into the milk tea. Its taste was kind of wield, but I still admire the cook’s imagination and courage to make up such a cuisine.
 
 Then we arrived the beach, and there’s only one legitimate thing you should do on the beach, which is just lying down.
 
